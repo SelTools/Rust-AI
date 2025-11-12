@@ -4,6 +4,7 @@
 ## SURVIVAL ENHANCEMENT TOOLS 2025
 
 *Advanced systems for the ultimate survival experience*
+![ma232acdsa323ix2323](https://github.com/user-attachments/assets/0e2d8c56-3d0e-4141-8127-ed536eaa4bd6)
 
 </div>
 
